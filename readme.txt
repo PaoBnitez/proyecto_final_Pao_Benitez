@@ -1,0 +1,1 @@
+En este proyecto quise dar a conocer un poco mis habilidades, por eso elegi este formato, es la primera vez que trabajo de esta forma, supongo que habran varios errores, y espero las correcciones par poder mejorar y seguir aprendiendo. Gracias.
